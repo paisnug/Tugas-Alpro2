@@ -1,3 +1,3 @@
 # Tugas-Alpro2
-Nama : Paisa Nugraha
+Nama : Paisal Nugraha
 NIM : I2410034
